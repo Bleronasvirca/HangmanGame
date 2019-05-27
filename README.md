@@ -1,1 +1,0 @@
-# Punimi-Seminarik-ne-Programim-dhe-algoritme
